@@ -1,0 +1,1 @@
+It is to be noted that the exam schedule has been collected from the McGill University website mcgill.ca, focused on Winter 2020 term.
